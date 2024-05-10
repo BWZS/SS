@@ -1,6 +1,8 @@
 # 光明力量系列中文版资源集合
 
-百度网盘：https://pan.baidu.com/s/1_JvtCeIbJJnMjkmmz_X_ZA 提取码:146l
+百度网盘：[https://pan.baidu.com/s/1_JvtCeIbJJnMjkmmz_X_ZA 提取码:146l](https://pan.baidu.com/s/1-UsCPzX2PuTPVKyZ7loeEA?pwd=4q2x)
+天翼云盘：https://cloud.189.cn/web/share?code=uYJNb2eMvyqe
+备份盘：http://bwzs.ysepan.com/
 
 声明
 
